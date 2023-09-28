@@ -1,1 +1,1 @@
-welcomne
+WELCOME TO ALL
